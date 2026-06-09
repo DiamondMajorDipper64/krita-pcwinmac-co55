@@ -1,4 +1,4 @@
-# 
+# Officiel Krita effets pour Mac OS | Premium Krita effets pour PC Windows. Avec calque vectoriel et peinture de textures — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
